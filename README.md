@@ -1,4 +1,5 @@
 # Шандыбина Софья Алексеевна, 22 года
+![photo1712305049](https://github.com/alsosha/portfolio-test/assets/165704822/356b1449-23a9-44e5-a936-fb0e302108f5)
 
 ### Контакты
 
